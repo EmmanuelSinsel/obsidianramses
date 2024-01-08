@@ -1,0 +1,3 @@
+# Artículo 33
+
+Las personas en el Municipio podrán ejercer los derechos que establece la Constitución Política de los Estados Unidos Mexicanos, /( #Congreso-del-Estado )/ la Constitución Política del Estado de Sinaloa, las leyes secundarias, reglamentos y acuerdos además de los contenidos en los Tratados y Convenios Internacionales suscritos y ratificados por el Estado mexicano, con las debidas garantías por parte de las autoridades.

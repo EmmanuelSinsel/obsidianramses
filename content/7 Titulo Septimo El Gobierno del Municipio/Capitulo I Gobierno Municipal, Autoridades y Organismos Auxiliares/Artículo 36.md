@@ -1,0 +1,3 @@
+# Artículo 36
+
+El H. #Ayuntamiento es una Asamblea deliberante que se integra por un Presidente Municipal, Un Síndico Procurador, los Regidores electos según el principio de mayoría relativa y con los Regidores por el principio de representación proporcional que establece la /( #Congreso-del-Estado )/ Constitución Política del Estado Libre y Soberano de Sinaloa y la Ley Estatal Electoral y su Reglamento.

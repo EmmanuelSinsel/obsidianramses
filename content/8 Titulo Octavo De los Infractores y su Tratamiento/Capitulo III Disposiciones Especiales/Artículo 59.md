@@ -1,0 +1,3 @@
+# Artículo 59
+
+Los ciegos, sordomudos y demás personas con graves incapacidades físicas, serán sancionados por las faltas que cometan, salvo que encuadren en los casos de excepción previstos en este #Bando, siempre que se acredite que su impedimento no ha influido en forma determinante sobre su responsabilidad en los hechos, pero el Tribunal tomará en cuenta esta circunstancia para la aplicación de la sanción.

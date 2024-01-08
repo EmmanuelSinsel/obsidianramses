@@ -1,0 +1,3 @@
+# Artículo 58
+
+En caso de que el presunto infractor sea extranjero, una vez presentado ante el Tribunal, deberá acreditar ante el mismo, su legal estancia en el país; en todo caso, se dará aviso a las autoridades migratorias y a su embajada o consulado más cercano, para los efectos que procedan, sin perjuicio de que se le siga el procedimiento y se le impongan las sanciones a que haya lugar, según lo previsto en este #Bando

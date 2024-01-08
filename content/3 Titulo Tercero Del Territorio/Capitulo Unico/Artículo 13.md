@@ -1,0 +1,3 @@
+# ARTÍCULO 13
+
+Independientemente de sus autoridades y de su población, el Municipio de #Ahome está integrado por la Ciudad de Los Mochis y sus Fraccionamientos, Colonias y Barrios y por las Sindicaturas: 4 Central, Topolobampo, San Miguel Zapotitlán, Heriberto Valdez Romero, Villa Gustavo Díaz Ordaz, Higuera de Zaragoza y Ahome, las Comisarías que las integran, así como por todas las Villas, Pueblos y Ranchos comprendidos en aquellas.

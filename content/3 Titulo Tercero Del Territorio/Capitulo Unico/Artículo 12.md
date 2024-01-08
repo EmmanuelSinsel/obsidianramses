@@ -1,0 +1,3 @@
+# Artículo 12
+
+El Municipio libre de #Ahome con cabecera en la Ciudad de Los Mochis, tiene personalidad jurídica, patrimonio y gobierno propio, administrado por un Ayuntamiento de elección popular directa, que residirá en la Cabecera Municipal, de acuerdo a lo establecido por el Artículo 15 de la Constitución Política de los Estados Unidos Mexicanos, por la /( #Congreso-del-Estado )/ Constitución Política del Estado Libre y Soberano de Sinaloa y por la Ley de Gobierno Municipal del Estado de Sinaloa.

@@ -1,0 +1,3 @@
+# Artículo 35
+
+El Gobierno del Municipio de #Ahome corresponde ejercerlo a un Cuerpo Colegiado que se denomina H. #Ayuntamiento, el cual residirá en la Cabecera Municipal, en los términos previstos por 8 la Constitución Política de los Estados Unidos Mexicanos, la /( #Congreso-del-Estado )/ Constitución del Estado Libre y Soberano de Sinaloa, por la Ley de Gobierno Municipal del Estado de Sinaloa y los reglamentos respectivos.

@@ -1,0 +1,3 @@
+# Artículo 25
+
+Son vecinos del Municipio de #Ahome todas las personas nacidas en el Municipio y radicadas dentro de su territorio; o las personas que tengan más de 6 Meses de residir dentro de su territorio, con ánimo de permanecer en él; o las personas que tengan menos de 6 meses de residencia, siempre y cuando manifiesten ante la Autoridad Municipal /( #Ayuntamiento )/, su decisión de adquirir la vecindad y acrediten haber renunciado a su vecindad anterior, con la constancia expedida por la Autoridad competente, debiendo comprobar además la existencia de su domicilio, así como su profesión o trabajo dentro del Municipio.

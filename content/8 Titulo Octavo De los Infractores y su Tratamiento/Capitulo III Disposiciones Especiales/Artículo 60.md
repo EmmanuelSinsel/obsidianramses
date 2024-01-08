@@ -1,0 +1,3 @@
+# Artículo 61
+
+Cuando el presunto infractor sea presentado ante el Tribunal bajo la influencia de cualquier droga, con un grado de intoxicación tal, que no le permita comprender sus acciones u omisiones, poniendo en peligro su vida a juicio del médico de guardia, se suspenderá el procedimiento y se deberá comunicar tal situación a los ascendientes o descendientes del infractor con el fin de que lo trasladen a una institución de salud. Si no es posible establecer tal comunicación, se le remitirá a una institución pública para que sea atendido, sin que obste para investigar el paradero de sus familiares. Lo anterior, sin perjuicio de que una vez recuperado, se continúe el procedimiento para determinar la responsabilidad en su caso, y la sanción que corresponda.
